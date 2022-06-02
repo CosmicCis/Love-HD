@@ -1,2 +1,2 @@
-# Love-HD
+# Love HD
 Love HD
